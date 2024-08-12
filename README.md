@@ -1,1 +1,1 @@
-# FreeMaruHub
+Enjoy
